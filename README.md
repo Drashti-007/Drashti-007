@@ -1,4 +1,4 @@
-# 🐈‍⬛ Hey there, I'm Drashti! 
+# Hey there, I'm Drashti! 
 
 Computer Engineering Student | Data Science & AI Enthusiast | Constant Learner  
 
